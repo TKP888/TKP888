@@ -9,7 +9,7 @@ Fun Facts:
 
 • I try to visit a new country every year, ideally somewhere with good food and even better photo ops.
 
-• My game backlog is growing faster than I can play — but I still pretend I’ll finish them all someday.
+• My game backlog is growing faster than I can play... but I still pretend I’ll finish them all someday.
 
 <!--
 **TKP888/TKP888** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
