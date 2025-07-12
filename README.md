@@ -5,7 +5,7 @@ I enjoy building web apps that feel fast, work for everyone, and are simple to u
 
 When I’m not coding, I’m usually gaming, watching movies, playing guitar, or taking photos. I also love travelling and exploring new cultures.
 
-Fun facts:
+Fun Facts:
 
 • I try to visit a new country every year, ideally somewhere with good food and even better photo ops.
 
