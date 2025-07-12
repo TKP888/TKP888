@@ -8,6 +8,7 @@ When I’m not coding, I’m usually gaming, watching movies, playing guitar, or
 Fun facts:
 
 • I try to visit a new country every year, ideally somewhere with good food and even better photo ops.
+
 • My game backlog is growing faster than I can play — but I still pretend I’ll finish them all someday.
 
 <!--
